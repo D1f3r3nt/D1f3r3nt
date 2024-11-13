@@ -10,7 +10,7 @@ I have developed a variety of projects and have gained experience in technologie
  
 I am sociable, with leadership and I look for opportunities abroad to grow personally and professionally, as well as to get to know new cultures and receive constructive feedback.
 
-📩 santistebanmarc@gmail.com
+📩 santistebanmarc@gmail.com <br/>
 ℹ️ https://msantisteban.com
 
 ## 🌐 Socials:
